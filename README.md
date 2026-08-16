@@ -1,0 +1,2 @@
+# Wraths-Script-BY-WORTH
+https://discord.gg/cVbT942MMJ JOIN GUYS SCRIPT IS FREE PLEASE JOIN MY SERVER
